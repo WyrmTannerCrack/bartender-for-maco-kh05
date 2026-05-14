@@ -1,4 +1,4 @@
-
+rare Bartender for macOS Plugin | search-enhancement + file-indexing offers the most advanced Bartender for macOS plugin, with search-enhancement and file-indexing. Ideal for
 
 
 
